@@ -14,3 +14,4 @@
 </p>
 
 > [rentry](https://rentry.co/drum-kit)
+> whiplash fan since '16

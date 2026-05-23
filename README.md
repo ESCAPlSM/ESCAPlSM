@@ -1,4 +1,4 @@
-> heavy iwc for those over 18. recommended to avoid me at most.
+> heavy iwc for those over 18. sorry, i get easily uncomfortable due to past experiences.
 <p align="center">
   <img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled49_20260516130442.png>
   $\color{#F8D06B}{\textsf{I RATHER DIE DRUNK, BROKE AT 34, AND HAVE PEOPLE AT THE DINNER TABLE TALK ABOUT ME,}}$

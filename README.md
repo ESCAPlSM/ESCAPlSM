@@ -5,7 +5,7 @@
 
 <div align="center">
   
-[rentry](https://rentry.co/frlday) ☘︎ [ata](https://escap-ism.atabook.org)
+[rentry](https://rentry.co/frlday) ☘︎ [ata](https://escap-ism.atabook.org) ☘︎ [strawpage](https://robinflock.straw.page/)
 
 c+h is **ok**! *w*2i
 

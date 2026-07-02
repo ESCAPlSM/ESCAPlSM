@@ -13,7 +13,7 @@ c+h is **ok**! *w*2i
 
 <div align=center>
   
-  ![](https://komarev.com/ghpvc/?username=ESCAPlSM&style=plastic)
+  ![](https://komarev.com/ghpvc/?username=ESCAPlSM&style=plastic&color=ff5300)
 </div>
 
 <p align=center>

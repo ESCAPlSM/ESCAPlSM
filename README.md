@@ -20,4 +20,4 @@ c+h is **ok**! *w*2i
 <img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled100_20260702013808.png>
 </p>
 
-> formerly known as **@escap-ism** & **@nei-man**
+> formerly known as **@es-capism** & **@nei-man**

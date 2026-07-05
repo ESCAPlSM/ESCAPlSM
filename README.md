@@ -7,7 +7,7 @@
   
 [rentry](https://rentry.co/frlday) ☘︎ [ata](https://escap-ism.atabook.org) ☘︎ [strawpage](https://robinflock.straw.page/)
 
-c+h is **ok**! *w*2i
+c+h is **ok**, no matter the status! *w*2i, read links 4 more info
 
 </div>
 

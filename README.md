@@ -12,7 +12,7 @@ c+h is **ok**, no matter the status! *w*2i, read rentry 4 more info
 
 <div align=center>
   
-  ![](https://komarev.com/ghpvc/?username=ESCAPlSM&style=plastic&color=5C75AC&label=ai)
+  ![](https://komarev.com/ghpvc/?username=ESCAPlSM&style=plastic&color=2175CF&label=ai)
 </div>
 
 > formerly known as **@es-capism** & **@nei-man**

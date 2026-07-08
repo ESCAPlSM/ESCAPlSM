@@ -4,7 +4,7 @@
 
 <div align="center">
   
-[rentry](https://rentry.co/frlday) ☘︎ [ata](https://escap-ism.atabook.org)
+[rentry](https://rentry.co/frlday) ☘︎ [ata](https://ultrakilled.atabook.org)
 
 c+h is **ok**, no matter the status! *w*2i, read rentry 4 more info
 

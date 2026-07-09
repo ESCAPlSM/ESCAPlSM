@@ -6,7 +6,7 @@
   
 [rentry](https://rentry.co/frlday) ☘︎ [ata](https://ultrakilled.atabook.org)
 
-c+h is **ok**, no matter the status! *w*2i, read rentry 4 more info
+c+h is **ok**, w*2*i - sign ata ☀️
 
 </div>
 

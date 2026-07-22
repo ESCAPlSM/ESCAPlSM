@@ -20,7 +20,7 @@ while i am reworking my rentry, have this simple pt info.
 
   no, i am not a subspace kin/yume/sometjing something or any of the other terms. i'm still learning about those labels, but i do not see myself as that. they're just my favourite character in phighting. i do respect the people though who use those terms/identify as that. please be patient, i am *learning*.
 
-  **dni if you are under 15 (unless associated). forsaken fandom dni. pro/darkship wtv labels you people have, dni. [basic dni](https://rentry.co/basicdni)**
+  **iwc if you are under 15 (unless associated), interactions are strictly in-game or not at all. forsaken fandom dni. pro/darkship wtv labels you people have, dni. [basic dni](https://rentry.co/basicdni). <sub>this is not as important, but i prefer if medhammer shippers iwc. the people i've met aren't really the friendliest.**
   
 </details>
 </div>

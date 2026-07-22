@@ -1,4 +1,7 @@
-<p align>
+<p align=center>
+<img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled143_20260722102917.png>
+</p>
+<p align=center>
 <img src=https://file.garden/aeWHuH8drAn4J5-A/subspaceartbyme>
 </p>
 

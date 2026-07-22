@@ -7,12 +7,14 @@
 
 <div align=center>
 
-i am gonna rework this.
+while i am reworking my rentry, have this simple pt info.
 
-[rentry](https://rentry.co/frlday) , [ata](https://ultrakilled.atabook.org)
-
-c+h is **ok**, w*2*i - sign ata
-
+<details>
+  <summary>pt info</summary>
+ 
+  hi my name is **friday**<sub>or atlas</sub>
+  
+</details>
 </div>
 
 <div align=center>

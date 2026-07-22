@@ -7,7 +7,6 @@
 
 <div align=center>
 
-while i am reworking my rentry, have this simple pt info.
 
 <details>
   <summary>pt info</summary>

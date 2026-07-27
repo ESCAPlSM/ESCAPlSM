@@ -1,7 +1,4 @@
 <p align=center>
-<img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled143_20260722102917.png>
-</p>
-<p align=center>
 <img src=https://file.garden/aeWHuH8drAn4J5-A/subspaceartbyme>
 </p>
 
@@ -32,9 +29,6 @@
   [ata](https://ultrakilled.atabook.org)
 
   </div>
-<p align=center>
-<img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled143_20260722102924.png>
-</p>
 
 > formerly known as **@es-capism** & **@nei-man**
 

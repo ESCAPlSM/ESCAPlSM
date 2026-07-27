@@ -11,7 +11,7 @@
 <details>
   <summary>pt info</summary>
  
-  hi my name is **friday**<sub>or atlas</sub>. i am *17*yo male and i like phighting, ultrakill, and transformers. <sub>roblox and phighting fandoms iwec. the ship discourse and drama that erupts there is just crazy.</sub>
+  hi my name is **friday**<sub>or atlas</sub>. i am *17*yo male and i like phighting, ultrakill, and transformers. <sub>roblox and phighting fandoms iwc. kinda leaning into ships dniuf idk dont kill me 😳.</sub>
 
   i'm very awkward, sorry. i tend to avoid big crowds in ponytown, and distance myself-my online activity flucuates a lot, but i'm usually found with my friend, [saturday](https://github.com/cutieache). don't let this stop you from interacting though, i try my best to respond to everyone. ^_^
 

@@ -37,3 +37,9 @@
 </p>
 
 > formerly known as **@es-capism** & **@nei-man**
+
+<p align=center>
+<details>
+  <img src=https://file.garden/aeWHuH8drAn4J5-A/IMG_6265.jpeg
+</details>
+</p>

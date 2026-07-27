@@ -40,6 +40,8 @@
 
 <p align=center>
 <details>
+  <summary> </summary>
   <img src=https://file.garden/aeWHuH8drAn4J5-A/IMG_6265.jpeg
 </details>
+  
 </p>

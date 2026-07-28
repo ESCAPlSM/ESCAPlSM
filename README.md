@@ -3,25 +3,12 @@
 </p>
 
 <div align=center>
-
-
-<details>
-  <summary>pt info</summary>
- 
-  hi my name is **friday**<sub>or atlas</sub>. i am *17*yo male and i like phighting, ultrakill, and transformers. <sub>roblox and phighting fandoms iwc. kinda leaning into ships dniuf idk dont kill me 😳.</sub>
-
-  i'm very awkward, sorry. i tend to avoid big crowds in ponytown, and distance myself-my online activity flucuates a lot, but i'm usually found with my friend, [saturday](https://github.com/cutieache). don't let this stop you from interacting though, i try my best to respond to everyone. ^_^
-
-  c+h is okay, w2i recommended.
-
-  **[basic dni](https://rentry.co/basicdni) + iwc if you're under 15. <sub>this is not as important, but i prefer if medhammer shippers iwc. the people i've met aren't really the friendliest.**
-  
-</details>
+hi i’m reworking EVERYTHING again
 </div>
 
 <div align=center>
   
-  ![](https://komarev.com/ghpvc/?username=escaplsmnew&style=plastic&color=FF0090&label=experiments)
+  ![](https://komarev.com/ghpvc/?username=escaplsmnew&style=plastic&color=cdcdcd&label=wip)
 </div>
 
 <div align=center>
@@ -30,12 +17,7 @@
 
   </div>
 
-> formerly known as **@es-capism** & **@nei-man**
 
 <p align=center>
-<details>
-  <summary> </summary>
   <img src=https://file.garden/aeWHuH8drAn4J5-A/IMG_6265.jpeg
-</details>
-  
-</p>
+  </p>

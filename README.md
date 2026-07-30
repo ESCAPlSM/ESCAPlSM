@@ -10,11 +10,6 @@
 
 <div align=center>
   
-  [ata](https://ultrakilled.atabook.org)
+  [ata](https://ultrakilled.atabook.org) + [rentry](https://rentry.co/SeekerTrio)
 
   </div>
-
-
-<p align=center>
-  <img src=https://file.garden/aeWHuH8drAn4J5-A/IMG_6265.jpeg
-  </p>

@@ -1,6 +1,6 @@
-<div align=center>
-hi i’m reworking EVERYTHING again
-</div>
+<p align=center>
+<img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled160_20260729221804.png>
+</p>
 
 
 <div align=center>

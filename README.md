@@ -1,6 +1,4 @@
-<p align=center>
-<img src=https://file.garden/aeWHuH8drAn4J5-A/Untitled160_20260729222346.png>
-</p>
+this gon kill me omg
 
 
 <div align=center>

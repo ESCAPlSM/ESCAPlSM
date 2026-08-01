@@ -9,5 +9,5 @@
 
 <div align=center>
 
-  [![](https://file.garden/aeWHuH8drAn4J5-A/Untitled170_20260731221243.png)](https://rentry.co/0620)
+  [![](https://file.garden/aeWHuH8drAn4J5-A/Untitled170_20260731221243.png)](https://rentry.co/0620) [![](https://file.garden/aeWHuH8drAn4J5-A/Untitled170_20260731221336.png)](https://ultrakilled.atabook.org)
   </div>

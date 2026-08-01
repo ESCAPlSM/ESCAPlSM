@@ -8,7 +8,6 @@
 </p>
 
 <div align=center>
-  
-  [ata](https://ultrakilled.atabook.org) + [rentry](https://rentry.co/SeekerTrio)
 
+  ![](https://file.garden/aeWHuH8drAn4J5-A/Untitled170_20260731221243.png)
   </div>

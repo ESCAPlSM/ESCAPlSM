@@ -3,7 +3,7 @@ this gon kill me omg
 
 <div align=center>
   
-  ![](https://komarev.com/ghpvc/?username=escaplsmnew&style=plastic&color=D36A24&label=SEEKERS)
+  ![](https://komarev.com/ghpvc/?username=escaplsmnew&style=plastic&color=0F3E7C&label=CYBERTRONIANS_:-))
 </div>
 
 <div align=center>
